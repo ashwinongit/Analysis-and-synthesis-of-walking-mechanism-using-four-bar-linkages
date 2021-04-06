@@ -1,0 +1,1 @@
+# Analysis-and-synthesis-of-walking-mechanism-using-four-bar-linkages
